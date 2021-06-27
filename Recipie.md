@@ -1,23 +1,3 @@
-# PRO-C26-MASTERCHEF-JUNIOR
-
-How To Make Yippee
-
-PREP TIME:1 MINUTES
-
- COOK TIME:2 MINUTES
- 
- COURSE:BREAKFAST
- 
- CUISINE:INDIA
- 
- 
- INGREDIENTS -
-
-▢2 Yippee
-
-▢ Yippee Masala
-
-
 INSTRUCTIONS
 
 You should buy packets of yippee. The yippee packet contains yippee.
